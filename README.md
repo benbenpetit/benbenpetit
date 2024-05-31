@@ -1,1 +1,1 @@
-![](fantastic-mr-fox-ash-fantastic-mr-fox.mp4)
+![](animated.gif)
